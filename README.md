@@ -14,6 +14,6 @@
 界面简洁易用，强大的搜索功能和智能推荐系统，让你轻松找到喜欢的影片。无论是手机、平板还是电脑，都能流畅播放。
 选择这些平台，随时随地享受高质量的日本AV免费观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/z20250705/z05 ）</span>
 
 
